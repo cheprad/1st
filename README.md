@@ -1,3 +1,3 @@
 # 1st
 
-ไม่เอา outerstock
+ไม่เอา outerstock เทสๆ
